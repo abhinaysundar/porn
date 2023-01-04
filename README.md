@@ -65,16 +65,6 @@ Some of my favourite porn pages are:<br>
       <a href="https://www.sleazyneasy.com/videos/1419235/sexy-librarian-is-horny-as-fuck/" target="_blank">CLICK HERE</a>
     </td>
   </tr>
-  
-  <tr>
-    <td></td>
-    <td>
-      Brazzers - My stepmom bought me a stripper 
-    </td>
-    <td>
-      <a href="https://www.xvideos3.com/video23427968/brazzers_-_my_stepmom_bought_me_a_stripper" target="_blank">CLICK HERE</a>
-    </td>
-  </tr>
    
   <tr>
     <td></td>
@@ -830,12 +820,7 @@ Some of my favourite porn pages are:<br>
     <td><a href="http://iporntv.net/download/video/ph5fdc7f7be147a/amiee-cambridge-in-free-use-step-family-threesome" target="_blank">CLICK HERE</a>
     </td>
   </tr>
-<tr><td></td>
-    <td>Ryan Conner - My Stepmom Bought Me A Stripper, uploaded by Jackoneillsg1
-    </td>
-    <td><a href="https://www.playvids.com/l_UwKIzwJ6r/ryan-conner-my-stepmom-bought-me-a-stripper" target="_blank">CLICK HERE</a>
-    </td>
-  </tr>
+
 <tr><td></td>
     <td>Adriana Chechik - Crossing Borders - #double (pure guerre - 120) (26.09.2017) on SexyPorn
     </td>
