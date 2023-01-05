@@ -27,73 +27,7 @@ Some of my favourite porn pages are:<br>
     <th>VPN reqd/not
     </th>
   </tr>
-   
   
-  <tr><td></td>
-    <td>Lesbians 4
-    </td>
-    <td><a href="https://xhamster7.desi/videos/lesbians-4-xhJ5BJz" target="_blank">CLICK HERE</a>
-    </td>
-  </tr>
-  <tr><td></td>
-    <td>Large Lady Gets Nailed by her stepson, Jordi
-    </td>
-    <td><a href="https://xhamster7.desi/videos/large-lady-gets-nailed-by-her-stepson-jordi-13149483" target="_blank">CLICK HERE</a>
-    </td>
-  </tr>
-  
-  <tr><td></td>
-    <td>Brazzers - Klara Gold loves anal
-    </td>
-    <td><a href="https://xhamster7.desi/videos/brazzers-klara-gold-loves-anal-4707295" target="_blank">CLICK HERE</a>
-    </td>
-  </tr>
-  <tr><td></td>
-    <td>Brazzers - Slutty GF Natasha Vega fucks her BF's brother
-    </td>
-    <td><a href="https://xhamster7.desi/videos/brazzers-slutty-gf-natasha-vega-fucks-her-bf-s-brother-1461164" target="_blank">CLICK HERE</a>
-    </td>
-  </tr>
-  <tr><td></td>
-    <td>Yoga class turns into hard anal fucking
-    </td>
-    <td><a href="https://xhamster7.desi/videos/yoga-class-turns-into-hard-anal-fucking-6061444" target="_blank">CLICK HERE</a>
-    </td>
-  </tr>
-  <tr><td></td>
-    <td>Stepbro fucks his latina bitches stepsis / Xozilla.com
-    </td>
-    <td><a href="https://www.xozilla.com/videos/131036/stepbro-fucks-his-latina-bitches-stepsis/" target="_blank">CLICK HERE</a>
-    </td>
-  </tr>
-  
-  <tr><td></td>
-    <td>Tiffany Watson Facial By Surprise Ciara Riviera, Fraize - PeekVids
-    </td>
-    <td><a href="https://www.peekvids.com/v/tiffany-watson-facial-by-surprise-ciara-riviera/aW4Jj0hlw8r" target="_blank">CLICK HERE</a>
-    </td>
-  </tr>
-  
-  
-  <tr><td></td>
-    <td>Full of milk / Xozilla.com
-    </td>
-    <td><a href="https://www.xozilla.com/videos/7766/full-of-milk/" target="_blank">CLICK HERE</a>
-    </td>
-  </tr>
-  <tr><td></td>
-    <td>Asian cowgirl blowjobs and creampie / Xozilla.com
-    </td>
-    <td><a href="https://www.xozilla.com/videos/115454/asian-cowgirl-blowjobs-and-creampie/" target="_blank">CLICK HERE</a>
-    </td>
-  </tr>
-  
-  <tr><td></td>
-    <td>Katie Kush: Free Porn Star Videos (103) @ xHamster
-    </td>
-    <td><a href="https://xhamster7.desi/pornstars/katie-kush" target="_blank">CLICK HERE</a>
-    </td>
-  </tr>
   <tr><td></td>
     <td>Mobile shop staff girl nude MMS - MadSex.com
     </td>
